@@ -6,11 +6,6 @@ I develop web pages using javascript,php,mysql and implement blockchain technolo
 Mixing ecommerce .Also I am specialist in Cybersecurity as well.
  
 If you are interested or need something regarding the next
-The next topics , do not doubt to contact:
-
-- ecommerce.
-- javascript,php,mysql.
-- business reasons ( need a comerciañ site, forum, personal cormer etc)
-- Blockchain. 
+The next topics , do not doubt to contact.
 
 ©️Sinphony ®️ 2022 🐺</h5></center>
